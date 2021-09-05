@@ -11,4 +11,4 @@ Website: http://hano.cf/
 
 ## Demo
 
-Watch it on [My Channel YouTube] (https://www.youtube.com/c/hano_tran)
+Follow Me [Youtube](https://www.youtube.com/c/hano_tran)
